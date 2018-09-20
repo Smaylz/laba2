@@ -1,1 +1,1 @@
-~~~Vitaly for you!!!~~~
+Vitaly for you!!!
