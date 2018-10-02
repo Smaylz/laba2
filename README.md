@@ -1,1 +1,1 @@
-Vitaly for you!!!
+For you my love!!!
